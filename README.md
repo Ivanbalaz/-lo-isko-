@@ -1,1 +1,1 @@
-# -lo-isko-
+Ivan.Baláž.json
